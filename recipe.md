@@ -1,0 +1,1 @@
+First boil water. Then put the noodles inside of the water. Then add the flavoring. After it has boiled for 7-10 minutes eat it
